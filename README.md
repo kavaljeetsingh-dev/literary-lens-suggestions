@@ -1,1 +1,1 @@
-Welcome to Literary lens
+Welcome to the Literary lens
